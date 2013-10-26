@@ -1,0 +1,4 @@
+User-agent: *
+Disallow: 
+
+Sitemap: http://medusanews.github.io/sitemap.xml 
