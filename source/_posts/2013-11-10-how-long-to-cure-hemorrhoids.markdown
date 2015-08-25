@@ -1,0 +1,22 @@
+---
+layout: post
+title: "How long to cure hemorrhoids?"
+date: 2013-11-10 18:49
+comments: true
+categories: proctology
+description: How long do hemorrhoids last, if he does not retreat? In the following steps should refer to the drugs that the doctor prescribed
+keywords: how long do hemorrhoids last
+offer: venapro
+---
+<p><img class="left" src="http://medusanews.com/images/how-long-to-cure-hemorrhoids/1.jpg" width="200" height="150" title="How long do hemorrhoids last" alt="How long to cure hemorrhoids?"> Many of the people in connection with their professional activities or old age are sedentary throughout the day. That&rsquo;s just the body that is not beneficial. The most annoying thing that can undermine your health in this case, it is hemorrhoids.</p>
+
+<p>After the hemorrhoid formation raises the question: how long do hemorrhoids last? As is the case with any other illness, duration of treatment depends on the stage of the disease and the method by which you will be treated. In no case did not begin treatment on their own. Only a doctor can determine the extent of the disease and will take just a decision about treatment. Hemorrhoids tend to move in the acute form, without any warning, even if you initially tried to treat the most simple form of it.</p>
+
+<!-- more -->
+
+
+<p>In the early stages it is possible to shoot down the pain and itching. In this case, the ice will latch to the anal area or compress the warm water. After defecation is best for 15 minutes to apply a warm bath. But do not overdo it with the temperature as excessively warm water can cause burns to the anal area. A few days is to stay at home and keep bed rest. It is recommended to sleep belly down, placing a pillow under your hips. During defecation should not strain the anus.</p>
+
+<p>How long do hemorrhoids last, if he does not retreat? In the following steps should refer to the drugs that the doctor prescribed. Here each drug in accordance with its capabilities involves different durations of treatment. It may be medications that will reduce the outflow of blood and clots (hemorrhoidal formations), in addition to that, they will function as pain relief. Various creams and ointments should be applied to the anal area with a massage at the same time. Massage also performed with the introduction of candles into the anus for hemorrhoids.</p>
+
+<p>Advanced stages of hemorrhoids are treated with surgery. Such methods resort after medication has no effect. External hemorrhoids are removed only if they are too large scale. The most popular surgical procedure with the appearance of internal hemorrhoids. After removal of the clot will take some time to adapt and overcome the pain in the anal area. It is necessary to strictly follow the diet, not eating spicy and fatty foods, and alcohol.</p>

@@ -1,0 +1,26 @@
+---
+layout: post
+title: "Treating hemorrhoids with salt Epsom"
+date: 2013-11-13 21:11
+comments: true
+categories: proctology
+description: There is also a large-scale version of the hemorrhoids treatment with Epsom salt
+keywords: epsom salt hemorrhoids
+offer: venapro
+---
+<p><img class="left" src="http://medusanews.com/images/epsom-salt-hemorrhoids/4.jpg" width="200" height="150" title="Epsom salt hemorrhoids" alt="Treating hemorrhoids with salt Epsom"> There are more than twenty kinds of hemorrhoid treatment of folk remedies, but this article will describe the most effective form of treatment for hemorrhoids is hemorrhoid treatment with Epsom salt.</p>
+
+<!-- more -->
+
+
+<h2>Salty warm bath</h2>
+
+<p>For the manufacture of the trays you need:</p>
+
+<p>2-3 liters of boiled water, which should be the presence of 500 grams of salt. After that, you will be required to cool the solution to such a temperature that you are able to survive, it is desirable, the lower, the better. Then you pour the mixture of water and salt in a bowl and dive into it. This procedure is performed before you go to bed. The course shall consist of not less than three days. This method does not give you a guarantee that the pile will disappear, but we can say for sure that the pain you leave.</p>
+
+<p>Also there is another use of salt, which will help you to get rid of unpleasant feelings, but the process is simple, though, but still long. You will be required for two weeks every day after meals dissolve by gram of salt.</p>
+
+<p>If the patient has not seen a strong blood flow, then it is possible to put an enema with a solution of water and salt through which &ndash; while it will act very well.</p>
+
+<p>There is also a large-scale version of the hemorrhoids treatment with Epsom salt. For this option, you will need two pounds of salt, which you will need to pour into a bath filled with warm water, and then there will plunge themselves. This method is excellent impact on treatment of hemorrhoids.</p>

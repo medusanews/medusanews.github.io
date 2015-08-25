@@ -1,0 +1,55 @@
+---
+layout: post
+title: "38% of Americans have a child who suffers from an allergy"
+date: 2014-07-26 13:36
+comments: true
+categories: allergology
+description: The results of the study Ifop/Stallergenes Foundation revealed that 38% of Americans have a child who suffers from allergies.
+keywords: allergy, allergic child
+---
+<p><img class="left" src="/images/38-percent-of-americans-have-a-child-who-suffers-from-an-allergy/0.jpg" width="200" height="150" title="allergy, allergic child" alt="38% of Americans have a child who suffers from an allergy">The results of the FIFG/Stallergenes Foundation study revealed that 38% of Americans have a child who suffers from allergies.</p>
+
+<p><strong>Among these allergic children, 28% suffer from respiratory allergies, 12% develop food allergies and 12% of drug allergies.</strong></p>
+
+<p>This is more than 1 in 3 children.</p>
+
+<!--more-->
+
+
+<h2>Allergies strong growth</h2>
+
+<p>&ldquo;Children are a slice of the population at risk because more sensitive to allergens, chemicals as well as viral infections&rdquo; explains Dr. Pham Thi Nhan, allergist, pneumo-pediatrician, Necker Hospital &ndash; Sick Children, New York.</p>
+
+<p>According to the results of the FIFG/Stallergenes Foundation study, 94% of Americans believe that there are more allergies now than in the past. Confirmed by a WHO felt. In France, from 25 to 30% of people suffer from allergies, or double the number 20 years ago, particularly among children and adolescents. More worryingly, the WHO predicts that by 2050, 1 in 2 will be allergic in the world. &ldquo;It is known that severe cases of allergies are increasing worldwide. This is not only due to a more accurate diagnosis but phenomena that progress in the population&rdquo;, declare the allergist.</p>
+
+<p>What are the factors responsible for the increase in allergies?</p>
+
+<ul>
+<li>73% of Americans people point the finger at pollution;</li>
+<li>34% pesticide use;</li>
+<li>28% changes in supply mode;</li>
+<li>25% overprotection of infants;</li>
+<li>22% increase in awareness of the organization;</li>
+<li>18% climate change.</li>
+</ul>
+
+
+<p>&ldquo;Pollution is a co-precipitant and aggravating allergies: it increases our sensitivity and our susceptibility to the environment and therefore increases the risk of developing allergies. When pollution peaks in March, we have seen an impressive number of allergies: new cases and cases of severe rhino<a href="http://medusanews.com/diseases-and-conditions/ophthalmology/conjunctivitis.html" title="conjunctivitis">conjunctivitis</a> including pollens, excluding asthma attacks. The days that followed pollution peaks, the number of health care utilization has risen sharply&rdquo;, says Dr. Nhan Pham Thi.</p>
+
+<h2>Good reflexes to reduce allergens</h2>
+
+<p>In addition to the necessary consultation with a specialist and the establishment of appropriate treatment following the allergen to which the child is sensitive, simple steps can significantly reduce the impact of respiratory allergies.</p>
+
+<p>It is recommended that parents of children with respiratory allergies:</p>
+
+<ul>
+<li>ventilate the room (84%);</li>
+<li>do not put carpet (69%);</li>
+<li>to regularly clean (62%);</li>
+<li>do not use a pillow or feather duvet (52%);</li>
+<li>to avoid contact with dogs/cats (32%);</li>
+<li>not to houseplants or some trees in the garden (30%).</li>
+</ul>
+
+
+<p>&ldquo;Patient education is a mainstay of treatment that allows to change lifestyle to adapt to his new state of sensitivity requires support chronic and often long if not life treatment. A food allergic must learn to avoid food and control its aid kit. For a child with chronic rhinitis, nasal care are needed daily. Finally, asthma, adherence background is essential&rdquo; said Dr. Pham Thi Nhan.</p>

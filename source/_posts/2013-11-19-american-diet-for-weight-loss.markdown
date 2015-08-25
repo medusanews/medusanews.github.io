@@ -1,0 +1,82 @@
+---
+layout: post
+title: "American diet for weight loss"
+date: 2013-11-19 19:39
+comments: true
+categories: dietology
+description: The American diet Dinner minus and Rollercoaster - the real way to lose weight effectively and securely attach the result.
+keywords: american diet, diet roller coaster diet dinner minus
+offer: garcinia
+---
+<p><img class="left" src="http://medusanews.com/images/diet-roller-coaster-diet-dinner-minus/image.jpg" width="200" height="150" title="Diet roller coaster, diet dinner minus" alt="American diet for weight loss. Roller coaster and minus the dinner diets">Diet Rollercoaster allows you to securely lose weight by speeding up metabolism.</p>
+
+<p>Diet roller coaster developed by American nutritionist Martin Cathan more than 30 years ago and in that time has gained wide popularity. It is one of the most effective ways to reduce weight and allows the presence of physical activity, reduce up to 7 pounds in a week.</p>
+
+<!-- more -->
+
+
+<h2>The essence of the diet roller coaster</h2>
+
+<p>There is a simple explanation. The fact is that our body is able to quickly adjust and adapt to any diet. To do this, it is enough to just a few days, after which it includes saving mode (power saving), so the metabolism (metabolism) slows down and stops weight plummeted.</p>
+
+<p>Dr. Martin Katan take into account this feature, and developed the technique in such a way as to literally &ldquo;confuse&rdquo; the body, preventing it &ldquo;remember&rdquo; the amount of calories consumed and not allowing to adapt to the new regime.</p>
+
+<p>Recommended them daily caloric intake ranges up &ndash; down, from minimum to maximum, which gave the name of a popular diet roller coaster ride. Through this approach to nutrition he managed to lose about 30 pounds of dead weight and to help numerous people <span class="demo-button-click" id="demoT7">lose weight<span>.</p>
+
+<h2>Diet Rollercoaster menu</h2>
+
+<p>Follow the diet roller coaster is simple, you have to do only the willpower to break away and not to follow through, and meticulous counting calories. Product Composition, unlike most other programs weight reduction is not critical. That is, you can eat all you want, above all, to keep within the recommended number of calories.</p>
+
+<p>The most severe and difficult from a psychological point of view, are the first three days, which are allowed to eat only 600 calories. These days will be very hungry all the time and will want to eat, but you have to strictly follow your plan and understand that it will be easier. To do this, try to choose the daily caloric not chocolates, biscuits and light carbohydrate and low-calorie vegetables, fruits, low-fat dairy products and cereals on the water.</p>
+
+<p>Since these products are made up of fiber and slowly digestible carbohydrates, they provide a feeling of satiety for a long time and do not give a break to &ldquo;Jordania&rdquo;. In addition, fiber helps avoid the inevitable with insufficient food constipation, thoroughly clean the intestines and populate it useful microflora.</p>
+
+<p>Do not forget about the copious drinking regimen, drink plenty of simple and non-carbonated mineral water and herbal tea (without sugar). This will not only enhance the cleansing process in the intestine, but also help to avoid excessive hunger. Because we all know that people often confuse hunger with a feeling of thirst. Sometimes it is enough to drink a glass of water, and there is no longer want to.</p>
+
+<p>Thus, the scheme of alternation calories, designed for 3 weeks:</p>
+
+<p>The first &ndash; the third day &ndash; 600 calories;
+Fourth &ndash; the seventh day &ndash; 900 calories;
+The eighth &ndash; the fourteenth day &ndash; 1200 calories;
+The fifteenth &ndash; seventeenth day &ndash; 600 calories;
+Eighteen &ndash; twenty-one days &ndash; 900 kcal.</p>
+
+<p>Daily menu, as already mentioned, can be anything from any of the products, dishes and combinations. But to you it was easier to navigate, give an approximate daily food intake by 600, 900 and 1200 kcal. You can take it as a basis and change the components in its sole discretion, according to the energy value of foods (see table on the caloric content of products and labels) and the individual taste preferences.</p>
+
+<p>Breakfast &ndash; unsweetened tea, a small piece of rye bread;
+Lunch &ndash; 100 grams of boiled beef and cooked rice, a salad of radish and cucumber without oil;
+Dinner &ndash; 1 boiled egg and a glass of low-fat yogurt.</p>
+
+<p>Breakfast &ndash; black tea (you can add 1 liter. sugar) with rye crackers, apple green;
+Dinner &ndash; boiled or steamed fish, pasta and vegetable salad (100 g). Tea (sugar content not exceeding 1 tsp);
+Dinner &ndash; 1 boiled egg, 100 grams of cottage cheese (low-fat), and a small banana.</p>
+
+<p>Breakfast &ndash; 200 grams of oatmeal (on the water and no oil), tea (sugar 1 tsp) with rye croutons;
+Dinner &ndash; boiled chicken (200 g), buckwheat porridge with a small piece of butter (100 g);
+Dinner &ndash; Assorted fruit salad of apples, grapes, bananas, pineapple.</p>
+
+<p>During the day, between meals, snacks are permitted &ndash; 1 cup low-fat yogurt, a small banana.</p>
+
+<p>After a full course of 21 days, you can gradually return to your normal diet. According to Dr. Katana, during this period can not reliably &ldquo;confuse&rdquo; the body, so the result is stored for a long period of time and will have to repeat the whole cycle will not soon.</p>
+
+<p>It should be noted that to observe the &ldquo;roller coaster&rdquo; only healthy people, the beauty and harmony should not be achieved at the expense of health. Slimming prohibited under the scheme &ldquo;600-900-1200&rdquo; with the gastro &ndash; intestinal tract, pregnant women, nursing mothers, as well as any chronic illnesses. Even if you feel perfectly healthy, losing weight before check with your doctor.</p>
+
+<p>Despite the fact that physical exercise can significantly, by almost 2-fold, to enhance the effect of the diet (with exercise you can lose up to 10 pounds, without them &ndash; to 6 pounds), heavy physical exertion banned because they can lead to a sharp deterioration  It is useful to practice yoga, walking, pilates, aerobics and leisurely cycling. To distract from the food, walk a little more in the fresh air and get enough sleep, at least 8 &ndash; 9 hours a day.</p>
+
+<h2>American diet &ldquo;Dinner minus&rdquo;</h2>
+
+<p>The American Diet Dinner minus does not promise weight loss in 3 days, but it is very comfortable to compliance and requires meticulous counting calories eaten each piece as a roller coaster. In addition, during the follow-up system, &ldquo;dinner minus&rdquo;, the body produces the correct and healthy eating habits &ndash; consume a major amount of fat in the first half of the day, when the active hormones are responsible for their split.</p>
+
+<p>It is based on the familiar childhood postulates that at night there are harmful and need to be fed in accordance with the well-known saying &ldquo;Eat breakfast yourself, share dinner with a friend, a dinner give to the enemy.&rdquo; That is, the authors offer a methodology completely forget about this concept as dinner and after 17 hours is recommended to drink only ordinary water.</p>
+
+<p>Thus, the basic principles of the diet minus dinner:</p>
+
+<ul>
+<li>Copious drinking regime &ndash; drink at least 2 liters of water daily;</li>
+<li>Last meal be carried out not later than 17 hours;</li>
+<li>Decrease in the consumption of animal fat diet, replacing them with vegetable. Just keep in mind that fats can not be completely ruled out, suitable for all common sense;</li>
+<li>Choose a menu for only quality products without trans fats, dyes, preservatives, emulsifiers, preferring fast food nutrition healthy homemade food.</li>
+</ul>
+
+
+<p>Composing your diet, avoid distortions in any direction. If you strongly want something sweet, do not deny yourself &ndash; eat a small piece of dessert in the first half of the day. Do not focus only on choosing low-calorie foods, pay more attention to their usefulness and naturalness. Remember, the beauty and harmony can only give a healthy body, provided a balance of everything necessary for the normal functioning &ndash; proteins, fats, carbohydrates, vitamins and trace elements.</p>

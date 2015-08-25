@@ -1,0 +1,100 @@
+---
+layout: post
+title: "Anti-cellulite massage at home - cups"
+date: 2013-11-24 20:11
+comments: true
+categories: health-and-beauty
+description: Anti-cellulite massage at home (honey, cupping, brush) helps to keep the skin in perfect condition
+keywords: cellulite massage at home, cupping cellulite massage, honey-cellulite massage, cellulite massage brush
+offer: greencoffee
+---
+<p><img class="left" src="http://medusanews.com/images/cellulite-massage-at-home/image.jpg" width="200" height="150" title="Anti-cellulite massage at home" alt="Anti-cellulite massage at home - cups, honey, brush"> Anti-cellulite massage at home helps to keep the skin in pristine condition. Anti-cellulite massage at home is the most affordable and effective means of dealing with cellulite. Because it can significantly improve the condition of the &ldquo;problem&rdquo; areas, increase circulation of blood and lymph in the subcutaneous fat layer and accelerate the elimination of toxins, toxins and metabolic products from the intercellular space.</p>
+
+<!-- more -->
+
+
+<h2>The principles and techniques of anti-cellulite self-massage</h2>
+
+<p>The basic principles of anti-cellulite self-massage is quite simple &ndash; having mastered them, you can always maintain your skin in perfect condition, without resorting to expensive beauty salons.</p>
+
+<p>Cellulite self-massage should be carried out energetic, but lightly. Common misconception of many women is that, ostensibly, to use as much physical strength. If you overdo and you will be too hard to knead and squeeze the skin, you will make a reverse effect &ndash; the deterioration of the situation and the weakening of lymph flow. There are cases where the use of unnecessary force due to the effect of cellulite noticeably intensified.</p>
+
+<p>To avoid compromising the lymph flow is prohibited to massage in the groin, thigh dimples, inner upper thighs and the area around the pubic area.</p>
+
+<p>The massage should be required from the bottom up.</p>
+
+<p>For best results, before a session of self-massage, heat the good body with exercise or a warm shower. Hands should also not be cold &ndash; warm them by rubbing your palms against each other.</p>
+
+<p>In order to achieve rapid results cellulite self-massage is desirable to carry out daily, ideally twice a day &ndash; morning and evening for 15-30 minutes. The first tangible results in the fight against cellulite, with due diligence, typically appear after 1-2 months.</p>
+
+<h2>Key anti-cellulite self-massage techniques of hand</h2>
+
+<p>In the exercise of self-massage hand-applied 3 main reception &ndash; rubbing, squeezing and pat.</p>
+
+<p>Grinding &ndash; is carried out in a circular motion (clockwise) of the entire surface of the palm. In the thighs rubbing should be done in a circular motion, and on his feet &ndash; from the bottom up.</p>
+
+<p>Pressing &ndash; at this reception to grab with both hands as much as possible the skin and knead &ldquo;the dough&rdquo;, while avoiding compression of the skin. Pushing effectively improves the tone flabby muscles.</p>
+
+<p>Pat &ndash; the most effective massage techniques, carried out or the whole hand, or knuckles, clenched in a fist. In this case, applied a series of rhythmic strokes of varying intensity. Pat can be done to rhythmic music, producing them in time.</p>
+
+<p>The most popular win these types of anti-cellulite massage as domestic cups, honey, and self-massage with a brush.</p>
+
+<h2>Brush-cellulite massage</h2>
+
+<p>Cellulite massage brush, according to the beauticians, the best way to recover at home blood and lymph circulation. It is held by a special massage brush with a handle, which can be purchased in a pharmacy or a department funds for the care of the body.</p>
+
+<p>The skin must be dry, without the use of oils and creams, not to injure the skin. Brush technique of self-massage is circular motions (clockwise) for each zone massaged enough for about 40 &ndash; 60 movements. Movements should be moderate, but the skin at the same time should get red in the face considerably. The feeling of warmth and redness typically lasts for an hour.</p>
+
+<p>When selecting the brush, give preference to natural thick stubble. If the brush is new and with the rough nap before applying pour over it several times with boiling water and mash the pile to make it less prickly. Remember that after the massage you should not have any bruises, scratches and tingling.</p>
+
+<p>Beginning self-massage brush, divide it into zones necessarily rising from the bottom up. The best option &ndash; consistently handle first calf, then the hips and buttocks. The standard course of treatments &ndash; 30 &ndash; 40 daily sessions. Never use a hand-held anti-cellulite massage for skin diseases, varicose and heart disease.</p>
+
+<p>Once a week, instead of the brush is useful self-massage to treat the cellulite areas of sea salt and freshly ground coffee. To do this, take a warm-up shower and rub in a circular motion with salt coffee or problem areas. After the procedure, put on body cellulite cream.</p>
+
+<h2>Cupping cellulite massage</h2>
+
+<p>Antitsellyuitny Cupping massage, thanks to the action of vacuum, well softens thick subcutaneous fat, so it is very effective for the correction of the beautiful contours of the body. In addition, it is quite effective in the fight against stretch marks (striae), and reduces swelling problem areas.</p>
+
+<p>For the canned anti-cellulite massage using special soft cans sold in pharmacies. Just click on the jar, attach to the body and release it &ndash; work the principle of suction cups, and it would be easy to drive on the skin.</p>
+
+<p>To Bank slid easily through the body, the skin is oiled with anti-effect. These oils can be purchased at a pharmacy or make your own. The basis of a 50 ml linseed oil or olive oil and added to it the choice of essential oils. Here are a few options for adding essential oils to the base:</p>
+
+<p>5 ml of essential oils of orange, grapefruit and anise;
+2 ml of oil red pepper and 5 ml of tea tree oil;
+5 ml of essential oil of tangerine, lemon and dill;
+3 ml of essential oils of fennel, juniper, lemon, cypress and tea tree;
+3 ml of essential oils of lemon, mandarin, cypress, and 5 ml of vetiver oil.</p>
+
+<p>Before canned massage, take a warm shower or do gymnastics, so that the body and the muscles are warmed up. Then apply the skin oil, and rub hands well &ndash; you need to slide the bank only on the body, not in your hand.</p>
+
+<p>Bank needs to keep pressing her fingers on the sides and ensure that the skin is pulled into no more than 1.5 centimeters. If you overdo it, and the pressure in the bank would be excessive, move it through the body becomes hard. After the first few sessions may be small bruises, that&rsquo;s fine, as long as the body is not used to the procedures. If the bruises keep appearing and then, then chances are you are doing something wrong.</p>
+
+<p>In addition, you can massage do not have to experience the pain and discomfort. If you experience any pain, do not have to endure &ndash; loosen the grip banks as cellulite affected areas should not be exposed to excessive squeezing.</p>
+
+<p>Move the bank should be very smooth and continuous, circular movements should be directed strictly clockwise. Finish with every massage movement toward the venous outflow, with the tightness of its banks to rearrange and only then continue the session.</p>
+
+<p>In order for the body to gradually got used to the loads, increases gradually during procedures &ndash; ranging from 2-3 minutes, increasing to 5 &ndash; 15 minutes for each problem area. Cup massage is a potent tool, so it is recommended not to do it more often than once every 2 &ndash; 3 days, standard course usually consists of 10-12 procedures. After a full course must be sure to take a break of 10-15 days, and only then, if desired, repeat.</p>
+
+<p>Wonderful effect is a combination of canned massage with brush and antitsellyuitnymi wraps (acetic, mud, using algae and others). Procedures for self-massage brush and cans perfectly complement each other, as frolement well with the brush massage strengthens the capillaries and blood vessels, and the impact of self-massage cupping-glass vacuum at adjusts the flow of blood and lymph tissue.</p>
+
+<p>As can massage should be done once every 2 to 3 days, and brushing every day, in the days when both procedures are coming, try to separate them in time to survive the interval between 4 &ndash; 6 hours, but not later than 20.00.</p>
+
+<p>Contraindication to the cupping-glass vacuum cellulite massage is an inflammatory disease of the skin, malignant and benign tumors, large birthmarks in the area of ​​massaging, tuberculosis, poor blood clotting, thrombosis, thrombophlebitis and varicose veins in the area of ​​massaging.</p>
+
+<h2>Honey cellulite massage</h2>
+
+<p>Honey-cellulite massage &ndash; a unique and extremely effective way to fight cellulite, known since ancient Tibet. The content in honey is almost half of the periodic table provides power not only the skin but also the muscles, many internal organs and tissues. In addition, the unique effect of honey on your skin and the entire body is that it absorbs into itself all the toxins and wastes, literally sucking them through the pores of the skin.</p>
+
+<p>For the massage, you can use only 100% pure honey, free of impurities and not exposed to significant heat treatment. It is advisable to buy it, or at a friend&rsquo;s beekeepers, or from a very trusted brands that exclude the possibility of forgery. Candied honey is not heated directly, or in the microwave, allowed only warm (not hot) water bath.</p>
+
+<p>Before the honey massage is recommended to warm up the skin slightly, spending for 3 &ndash; 5 minutes of easy kneading. Then the honey slowly rubbed into the skin of a heated until it begins to thicken, making the massage movements impossible. After this tactic is changing &ndash; at first hand in turn tightly close to the body, and then pull up sharply. Such otlepleniya continue as long as the skin turns red, and honey does not darken and should not go gray flakes. This typically requires from 8 to 15 minutes.</p>
+
+<p>Formed from the remnants of honey flakes removed using a hot compress and move to the massing of the other parts of the body. After the completion of the massage to shower thoroughly, since the waste honey, absorbed harmful substances are extremely toxic. After you cross the bridge, apply a moisturizer to the skin.</p>
+
+<p>As you can see, honey massage technique is fairly simple, but, unfortunately, very painful. And, if you were not hurt, then massage simply failed. Helpful Hint &ndash; with the massaged areas necessary first remove hairs that massage does not become a real torture.</p>
+
+<p>In the first session, if you can not endure the pain, not allowed to conduct massaging his palm and fingertips, until the skin becomes less sensitive. Moreover, during the initial procedures otleplenie hands can carry out more gently subsequently making them more sharp. No additional slaps and pressure on the skin to produce not need.</p>
+
+<p>The most effective is a course of anti-cellulite massage honey from 12 &ndash; 15 procedures in a day. It is contraindicated only for allergies to honey and weak, located close to the skin surface vessels.</p>
+
+<p>Since cellulite is a problem that the years do not pay attention to solving it is necessary to approach the complex &ndash; than the recommended massage techniques, it is necessary to eliminate the causes of cellulite, give up bad habits, as well as to normalize their diet and lifestyle.</p>

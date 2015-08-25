@@ -1,0 +1,38 @@
+---
+layout: post
+title: "Foods for hemorrhoids"
+date: 2013-10-25 22:51
+comments: true
+categories: proctology
+description: Foods for hemorrhoids should be selected taking into account the course
+keywords: foods for hemorrhoids
+offer: venapro
+---
+<p>If you want your life to be fulfilling and not different from that of healthy people, and you have such a disease, such as hemorrhoids, then you should choose the right nutrition. Poor nutrition with this diagnosis can aggravate and worsen the quality of life. To this did not happen, you need to radically restructure the principles of supply.</p>
+
+<!-- more -->
+
+
+<p>Meals should occur every 2-2.5 hours, the feed should have 6 times a day. Foods for hemorrhoids should be selected taking into account the course of the disease it is your.</p>
+
+<p>Vegetables, fruits and cereals should be the basis of your diet. Of cereals should be consumed buckwheat, oats, barley. You can eat bread, but made from wheat flour. Such dish like pasta use is not prohibited, but the quantity should be limited, as well as potatoes. As for vegetables, there is a list of products is quite large. Cucumbers, squash, beets, carrots, cauliflower, broccoli &ndash; all this can be eaten both raw and cooked.</p>
+
+<p>The list of fruits as well weighty enough. It includes apples, prunes, bananas, dried apricots, apricot. To meet organism dietary fiber in the diet should include a product as bran. Bran can be rye, oat or wheat. They need to eat at least 60 grams of adding oatmeal, or diluted with water to mushy state.</p>
+
+<p>Foods for hemorrhoids include and meat. But you need to use it in boiled or steamed. The meat should be chosen not fat varieties.</p>
+
+<p>A must in the diet of people with the disease is a product like vegetable oil. It stimulates colonic contractions. Required list also includes the use of water in an amount not less than 2-2.5 liters per day. If your weight is a little more than you need, the amount of water consumed should be increased. Fasting should drink every morning a glass of cool water to improve bowel movements.</p>
+
+<p>Any dairy products will perfectly support the work of your intestines. If they are rich in bifidobacteria and lactobacilli, it will be well to maintain the balance of microflora. Not restricted juices and fruit drinks, but do not abuse them.</p>
+
+<h2>What products can not be hemorrhoids</h2>
+
+<p>If no proper nutrition can make it difficult for the disease. In order not to complicate your life, you should avoid products containing animal proteins. Do not abuse the fish, meat and eggs. It is necessary to give up alcohol. In order not to cause bloating, eliminate from your diet grapes, turnips, radish and brown bread. Refuse need from coffee and strong tea, so as not to cause constipation.</p>
+
+<p>What products can not be haemorrhoids, depends on the extent and severity of the disease. Strongly sparing diet is also not recommended, as you can break the evacuation function of the intestine. Admission sweets just want to restrict. During an exacerbation shows besshlakovaya diet. It should take no more than 2 or 3 days. The protein omelette, boiled meat and broth, dried white rice porridge on the water intake will be of such a diet. In rice porridge allow the addition of a small piece of butter.</p>
+
+<h2>Prohibited foods for hemorrhoids</h2>
+
+<p>There is a list strictly forbidden foods for hemorrhoids. In order not to complicate the course of the disease, should be permanently give up eating certain foods. It is strictly forbidden to eat spicy, salty, pepper, fatty and fried. These products contribute to the expansion of the venous network of the cavernous tissue of the anal area, and violate local blood flow. It will be good if you&rsquo;re using steam method for processing of vegetables and meat, fish and poultry. By forbidden foods for hemorrhoids include any hard or soft carbonated drinks. Breakfast cereals, which contain large amounts of sugar, nutritionists forever excluded from the diet of patients with the disease.</p>
+
+<p>Always remember that choosing the right diet for yourself, you should always consult with a physician. Selection of the diet should come from the specific features of the disease and the individual organism. Independently experiment is not necessary, as it can lead to complications of the disease and its intensification.</p>

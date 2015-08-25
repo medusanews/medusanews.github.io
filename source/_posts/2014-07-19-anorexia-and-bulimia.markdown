@@ -1,0 +1,36 @@
+---
+layout: post
+title: "Anorexia and bulimia"
+date: 2014-07-19 13:15
+comments: true
+categories: healthy-lifestyle
+description: Anorexia and bulimia - caused by psychogenic eating disorders - now are increasingly common among adolescents and young people.
+keywords: anorexia, bulimia, eating behavior, eating disorder, restrictions on food, diet
+offer: garcinia
+---
+<p><img class="left" src="/images/anorexia-and-bulimia/0.jpg" width="200" height="150" title="anorexia, bulimia, eating behavior, eating disorder, eating, restrictions on food, diet" alt="Anorexia and bulimia">Anorexia &ndash; a pathological condition in which there was a complete lack of appetite in the presence of the objective necessity of the body in the diet. Anorexia may occur due to various reasons, such as parasitic infestations and <a href="http://medusanews.com/diseases-and-conditions/infectious-diseases/" title="infectious diseases">infectious diseases</a>, diseases of the digestive system. Usually considered separately anorexia nervosa.</p>
+
+<!--more-->
+
+
+<p>Anorexia nervosa is an eating disorder in which a person willfully refuses to eat for weight loss purposes. This disease occurs more often in girls. Nevertheless, it can be observed not only in the young, but also in adulthood, both women and men.</p>
+
+<p>Anorexia nervosa is characterized by the occurrence of a pathological desire to lose weight, which is accompanied by the development of intense fear of <a href="http://medusanews.com/diseases-and-conditions/dietology/obesity.html" title="obesity">obesity</a>. People suffering from anorexia, there is distortion of the own body, there is a concern about weight gain, even if in reality it is not marked. The causes of anorexia are divided into psychological (internal conflicts, the impact of the family), biological (genetic predisposition) and social (the impact of society &ndash; popular diets imitation idols).</p>
+
+<p>Anorexia is phasing flow &ndash; isolated dismorfomanicheskuyu, anorectic and cachectic stage. The first stage &ndash; dismorfomanicheskaya &ndash; characterized by the emergence of thoughts of inferiority because of imaginary completeness. In this patient develops anxiety, depressed mood, he sees himself in the long mirror. Also at this stage following the first attempt to limit in food.</p>
+
+<p>In the second stage the patient has resorted to a strict diet and grueling physical <a href="http://medusanews.com/diseases-and-conditions/psychology/stress.html" title="stress">stress</a>. However, he loses much weight, but does not stop fasting, since it can not objectively assess the degree of weight loss. Due to continuous malnutrition occur in the body pathological reactions. There are features such as <a href="http://medusanews.com/diseases-and-conditions/dermatology/hair-loss.html" title="hair loss">hair loss</a>, dry skin, decreased sexual desire, syncope, arrhythmia, stomach pain, <a href="http://medusanews.com/diseases-and-conditions/symptoms/constipation.html" title="constipation">constipation</a>, nausea, and <a href="http://medusanews.com/diseases-and-conditions/psychology/depression.html" title="depression">depression</a>. Infertility occurs: women due to amenorrhea (cessation of menstruation), men &ndash; due to the suppression of spermatogenesis.</p>
+
+<p>Body weight of the patient has been steadily declining in the body degenerative changes occur, and there comes a cachectic period. This stage usually develops anorexia after two years of onset. Pathological changes in the body leads to irreversible inhibition of the functions of all organs and systems, and result in death. In connection with this incessant flow and severe consequences, anorexia is a serious disease that requires mandatory treatment.</p>
+
+<h2>Bulimia</h2>
+
+<p>Another uncommon <a href="http://medusanews.com/diseases-and-conditions/psychology/eating-disorders.html" title="eating disorders">eating disorders</a> is <a href="http://medusanews.com/diseases-and-conditions/psychology/bulimia.html" title="bulimia">bulimia</a>. Bulimia occurs due to mental disorders, diseases of the endocrine and central nervous systems. This pathology often leads to obesity.</p>
+
+<p>Bulimia nervosa is characterized by sudden significant increase in appetite, feeling really hungry. Typically, bulimia occurs in the form of attacks or last time. Seizures are characterized by the absorption of huge amounts of food. They can occur suddenly or develop at a certain time (eg at night).</p>
+
+<p>People with bulimia often resorted to the use of laxatives and <a href="http://medusanews.com/diseases-and-conditions/symptoms/vomiting.html" title="vomiting">vomiting</a> to control weight. However, the use of large amounts of food and the subsequent forced cleaning of the stomach cause severe complications.</p>
+
+<p>Bulimia can develop independently or arise against the background of anorexia nervosa. As people with anorexia and bulimia patients control their weight become the overriding purpose in life. Bulimia, emerged against the background of anorexia nervosa is characterized by periodic episodes of binge eating occurrence that alternate periods of <a href="http://medusanews.com/diseases-and-conditions/dietology/starvation.html" title="starvation">starvation</a>. During these episodes the patient will eat huge amounts of food in a short time, while he usually swallows food without chewing. Typically, after a bout of bulimia patient vomits or takes large amounts of diuretics or laxatives, not thinking about the consequences for your health.</p>
+
+<p>Bulimia and anorexia are life-threatening conditions, so people suffering from these diseases, needs appropriate treatment. Unfortunately, patients are often hospitalized for anorexia able drastic depletion, whereas in the early treatment of the disease can be performed on an outpatient basis. It must be remembered that the earlier therapeutic interventions will be carried out, the less the risk of irreversible changes.</p>

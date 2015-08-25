@@ -1,0 +1,72 @@
+---
+layout: post
+title: "Homeopatic treatment of diseases. Hemorrhoids"
+date: 2013-11-10 17:57
+comments: true
+categories: proctology
+description: Many homeopathic remedies for hemorrhoids have been used successfully in the treatment
+keywords: homeopathic remedies for hemorrhoids
+offer: venapro
+---
+<p><img class="left" src="http://medusanews.com/images/homeopathic-remedies-for-hemorrhoids/index.jpg" width="200" height="150" title="Homeopathic remedies for hemorrhoids" alt="Homeopatic treatment of diseases. Hemorrhoids"/>Hemorrhoid is an inflammation of veins in the rectum, where they expand, so that nodes are formed.</p>
+
+<p>Those at risk for the disease hemorrhoids include obese people, lovers of spicy foods and alcohol, people who are on duty have little move and sit constantly, constantly bearing the weight people (such as housewives), pregnant and nursing mothers, as well as suffering from constipation several distinct stages of the disease.</p>
+
+<!-- more -->
+
+
+<h2>Stages of hemorrhoids</h2>
+
+<p>In the first stage of development and the severity of patients experience itching in the rectum, frequent constipation. Stronger feelings are after weight lifting, spicy food and drinking alcohol.</p>
+
+<p>The second stage is characterized by the appearance of bleeding hemorrhoids fall out, the pain is getting stronger and more.</p>
+
+<p>Sign of the next stage of hemorrhoids &ndash; hemorrhoids do not reduce a, resulting in an thrombosis or necrosis of the veins of the rectum.</p>
+
+<h2>Symptoms of hemorrhoids</h2>
+
+<p>The first striking symptom of hemorrhoids &ndash; is bleeding during each act of defecation. Also, patients notice a prolapsed hemorrhoid, a burning sensation and pain in the anus, feeling the presence of a foreign object into the anus and the severity of the groin.</p>
+
+<p>Immediately, we note that emit sharp and chronic hemorrhoids. In acute discomfort of the disease is stronger and brighter, whereas in chronic long can not be felt and gain strength only in certain periods of life. Among the symptoms of acute hemorrhoids also present perianal swelling.</p>
+
+<p>Next, hemorrhoids noted mucus from the anus, and finally, pain hemorrhoids.</p>
+
+<h2>Hemorrhoid treatment drugs classical medicine</h2>
+
+<p>As with any other disease, hemorrhoids are much easier to treat in the early stages. It was in the early periods of the disease can take advantage of non-surgical treatments. When hemorrhoids are very important the correct way of life that takes into account both traditional medicine and homeopathy.</p>
+
+<h2>Lifestyle hemorrhoids</h2>
+
+<p>The first and most important thing for hemorrhoids &ndash; to begin to move more, will be useful not too heavy physical activities, including swimming. From large loads should be avoided, as with alcohol and spicy food.</p>
+
+<p>Do not forget about hygiene. Need to take a shower after each act of defecation on the toilet paper it is desirable to give up.</p>
+
+<p>Diet plays a huge role in the treatment of hemorrhoids. As mentioned above, you need to stop eating bad foods in the diet and increase the number of fruits and vegetables.</p>
+
+<h2>Treatment of hemorrhoids</h2>
+
+<p>Proper treatment of hemorrhoids in classical medicine depends on what stage of development is a disease. For example, in the early stages to achieve the result by using the drug, but the drugs are aimed primarily at reducing the discomfort, rather than knocking causes disease. They decrease pain, improve blood flow and reduce inflammation. There are local medications such as ointments and candles, and there are those that are taken orally, such as tablets and injections.</p>
+
+<p>As soon as a thrombosis, as indicated by increased pain and discomfort in the anal area, ointments prescribed blood-thinning. The point of this is to not allow the blood to clot. In the case of very heavy bleeding from hemorrhoids begin receiving hemostatic drugs.</p>
+
+<p>Also recommended medications that strengthen the walls of veins, in particular often used <span class="demo-button-click" id="demoT7">Venapro</span>.</p>
+
+<h3>The treatment of hemorrhoids without surgery</h3>
+
+<p>We should also say about treatments for hemorrhoids without surgery, which, like medication, are good only at the initial stages. Today, sclerotherapy is used (in hemorrhoids introduced special substances to fill the lumen and wall adhesion), infrared coagulation (blocking the blood supply to the hemorrhoidal nodes), proximal ligation (ligation of the arteries) and ligation (ligation latex rings). The latter procedure is good even in the third stage of hemorrhoids.</p>
+
+<h3>Surgery for hemorrhoids</h3>
+
+<p>If the disease has gone too far and the application of the methods described above will not give proper result, it is necessary to resort to surgery. Unlike conventional medicine, homeopathic remedies can cure hemorrhoids without surgery, even at the last stage of its development.</p>
+
+<h3>Hemorrhoid Treatment drugs homeopathy</h3>
+
+<p>Many homeopathic remedies for hemorrhoids have been used successfully in the treatment. Tell you about the most common ones.
+If the disease worsened, that is passed into the last stage, it should be administered Atsidum muriatikum or hydrochloric acid in the sixth, twelfth and thirtieth dilution.
+If hemorrhoids are accompanied by itching and burning, it will help Venapro or capsicum in the third, sixth and twelfth dilution.</p>
+
+<p>When the disease is characterized by a sense of gravity, then appoint Sokotrina aloe or aloes in the third decimal, third and sixth dilution.</p>
+
+<p>When hemorrhoids, accompanied by bleeding, or helps Hamamelis Virginika hamamelis virginiana third decimal, third and sixth dilution, as well as ointments and oils.</p>
+
+<p>In general, the following are recommended for hemorrhoids homeopathic remedies:  Venapro drug combines these medications well.</p>

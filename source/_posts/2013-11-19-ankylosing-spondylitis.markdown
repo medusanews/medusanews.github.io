@@ -1,0 +1,96 @@
+---
+layout: post
+title: "Ankylosing spondylitis"
+date: 2013-11-19 19:45
+comments: true
+categories: health-and-beauty
+description: Ankylosing spondylitis. Causes, symptoms, diagnosis, treatment, exercises, massage and diet
+keywords: ankylosing spondylitis
+offer: healthbuy
+---
+<p><img class="left" src="http://medusanews.com/images/ankylosing-spondylitis/image.jpg" width="200" height="150" title="Ankylosing spondylitis" alt="Ankylosing spondylitis: causes, symptoms, diagnosis"> Modern methods of treatment of ankylosing spondylitis help stop the inflammation of the joints. Ankylosing spondylitis, or ankylosing spondylitis (ankylosing spondylitis) &ndash; a chronic inflammatory disease of the spine and joints, accompanied by pain, stiffness and deformity and progressive ossification of the joints, including the formation of irreversible changes in them and complete immobility.</p>
+
+<!-- more -->
+
+
+<h2>Ankylosing spondylitis causes</h2>
+
+<p>Causes of ankylosing spondylitis is not thoroughly understood, but it is known that people who are carriers of the gene HLA-B27, a genetic predisposition to the disease Ankylosing Spondylitis Disease (BB).</p>
+
+<p>The immune system of such people &ldquo;mistakenly&rdquo; believes tissue of the joints and ligaments, and alien attacks them, causing inflammation and damage.</p>
+
+<p>However, even in the presence of this gene, ill ankylosing spondylitis is not all that is a mystery and the subject of further research for doctors &ndash; Rheumatology. Additional factors that may trigger the development of the disease are considered to change the immune status of the &ndash; for colds, colds, viral and infectious &ndash; allergic diseases and injuries of the pelvis and spine.</p>
+
+<p>In addition, the latest research scientists have shown that ankylosing spondylitis is a psychosomatic illness and because, more than a third of cases the first symptoms began to appear after heavy and prolonged stress.</p>
+
+<h2>Diagnosis and distinctive symptoms of ankylosing spondylitis</h2>
+
+<p>Because some of the symptoms of ankylosing spondylitis is very similar to the symptoms of degenerative disc disease in the early stages of these diseases are often confused, as ankylosing spondylitis often starts as a normal low back pain &ndash; pain in the lower back and painful back muscle strain.</p>
+
+<p>Therefore, for correct diagnosis and start early treatment, it is important to identify the disease early in its development, to prevent the complete immobilization of the spine and associated threatening complications. The most dangerous complication of ankylosing spondylitis include:</p>
+
+<p>Amyloidosis &ndash; degeneration of the kidneys, leading to kidney failure;
+Defeat heart and aorta, leading to shortness of breath and chest pain provoking and disruption of the heart;
+Tuberculosis and other diseases of the lung, derived from &ndash; the decrease in the mobility of the chest;
+Uveitis &ndash; inflammation of the choroid, leading to blurred vision, eye pain and sensitivity to light;</p>
+
+<p>Among the primary symptoms of ankylosing spondylitis is the most characteristic periodic pain (in 75% of cases). But if osteochondrosis pain is permanent and increases when moving, then in ankylosing spondylitis is different &ndash; the pain is much worse at night and several subside during the day, after the start of active movements.</p>
+
+<p>If osteochondrosis person can lean on at least one side, or turn to the right &ndash; to the left, then the movement of ankylosing spondylitis usually fails in all directions. In addition, the most frequent symptom of ankylosing spondylitis is swelling and tenderness of the joints, as well as the characteristic change of posture, posture called the &ldquo;petitioner&rdquo;.</p>
+
+<p>In the formation of an asylum patient poses a gradual straightening of the normal curvature of the spine &ndash; the back is straight and flat. A little later freezes thoracic, there is a strong slouch, and the legs when walking instinctively bend at the knees. Over time, spinal stiffness reaches such a degree that the person begins to move as if he rather inflexible spine stick.</p>
+
+<p>Properly diagnose disease helps the spine x-ray in which an experienced physician may notice the early signs of changes of bones and joints, magnetic resonance imaging (MRI) and a blood test for C-reactive protein, erythrocyte sedimentation rate (ESR), and the presence of the antigen HLA-B27. ESR parameter greater than 30 mm/h and the presence of HLA-B27 antigen confirm the validity of the diagnosis of ankylosing spondylitis.</p>
+
+<h2>Ankylosing spondylitis treatment</h2>
+
+<p>As the basis of therapy in the treatment of ankylosing spondylitis patients assigned to longer courses (from 1 year to 5 years) of non-steroidal anti-inflammatory drugs, which help to significantly slow down the progression of the disease, as well as anti-rheumatic drugs, corticosteroids, and necrosis factor blockers. Sometimes, in particularly severe cases, shows the assignment of immunosuppressive drugs.</p>
+
+<p>In addition, it is important to sanitize all the centers of chronic infections in the body and carry out strengthening therapy &ndash; it is well to prevent cases of relapse. As an alternative treatment successfully used acupuncture, reflexology, magnet, pchelolechenie, hirudotherapy, physiotherapy and massage.</p>
+
+<p>Girudoterapiya (leech therapy) has a good anti-inflammatory, analgesic and anti-bacterial effect, as contained in the saliva of leeches enzymes (hirudin, Eglin, destabilaza) soften and make more plastic stiff spine, relieve inflammation and tissue damage of the joints and ligaments, and normalize blood flow.</p>
+
+<p>In addition, leech therapy has a beneficial effect on the entire body &ndash; by improving the blood circulation and better blood oxygen saturation, dissolve blood clots, normal metabolism, improved sleep, appetite and mood, and increases immunity.</p>
+
+<h2>Physiotherapy</h2>
+
+<p>Exercise therapy for ankylosing spondylitis is very important, as regular exercise and exercise increase blood flow in the joints, help maintain flexibility of the spine and lower extremities, stop the progression of the disease and prevent disability.</p>
+
+<p>However, you should remember that exercise should be a feasible and gentle, so as not to lead to poor health. So, absolutely contraindicated in patients with BB running, jumping, shaking in the transport and hypothermia. On the contrary, it is very useful to calm walking (up to 3 &ndash; 5 kilometers), including skiing on flat terrain. Swimming in ponds and pools allowed at water temperatures below 23 &ndash; 22 degrees, and leave recommended in areas with warm and dry climate.</p>
+
+<p>If you have a long time to be in the same position, it is necessary to change the position of each hour of the body. During the day, preferably several times to lie on a hard bed without a pillow when lying on stomach with legs straight. If this position is not straighten up, you can put a small pillow under her stomach.</p>
+
+<p>Therapeutic exercises should be mandatory daily procedure, even if you do not feel well and have no hope of restoring spinal mobility. The fact that, due to splices and joints chest stiffness deteriorates ventilation, which may lead to pneumonia, pulmonary fibrosis and other diseases. Therefore, in order to prevent serious complications, the patient is required breathing exercises (daily, 3-4 times a day, inflate a balloon) and regular walks in the fresh air.</p>
+
+<h2>Complex physiotherapy in ankylosing spondylitis</h2>
+
+<p>Initial position (and. etc.) &ndash; sitting on a chair.
+Turns head to the right and to the left, half circles and head tilts his ear to the shoulder.
+Hands on waist, shoulder blades are brought together, back straight &ndash; chin stretch ahead.
+Hands separated the sides, fingers clenched in a fist &ndash; chin hug the neck and connect the blades.</p>
+
+<p>Starting position &ndash; lying on his back
+Raise your head and stretch your chin to her stomach.
+Hands pull at your sides, legs join together &ndash; relying on the heel, neck and hands, lift the hips as high as possible and forecasting.
+Rewound Hands behind your head, legs together, feet on yourself &ndash; lift the body by 45 degrees, a little linger in this position, and slowly lower to the starting position.
+Lift straightened legs and work out them alternately in different directions circular motion.
+Bend your legs, arms behind his head rewound &ndash; lift the pelvis, cave in and slowly lower.</p>
+
+<p>Starting position &ndash; lying on its side
+Both the knee to the chest, move and try to reach out to their forehead. Then straighten your legs and cave in back.
+Follow alternately mahi straight leg forward &ndash; back and leg lifts straight up.
+Fold the leg at the knee and follow the circular motion of the hip.</p>
+
+<p>However, it is worth noting that the set of physical exercises can not be yourself, it must be paired with your doctor, who will take into account the individual characteristics of the course of ankylosing spondylitis and the general condition of the body.</p>
+
+<h2>Massage, diet and prevention of complications</h2>
+
+<p>Massage in ankylosing spondylitis, used in conjunction with physical therapy, good pain relief and muscle fatigue, strengthens the muscular system, normalizes skin tone and helps to preserve the ability of the vertebral motor.</p>
+
+<p>However, massage is just beyond the acute phase should be easy and gentle, with no hard techniques (cutting, effleurage) and carried out by a qualified technician. The total duration of the massage treatments should not exceed 25 minutes, after the course of treatment (20 &ndash; 25 sessions) needed a break for 3 &ndash; 4 weeks.</p>
+
+<p>Nutrition in ankylosing spondylitis, as with any other chronic inflammatory disease must be balanced, but not excessive, so as not to lead to obesity. Caloric intake should closely match the physiological needs of the body and exercise patient as overweight creates a dangerous extra strain on the joints of the spine and lower extremities.</p>
+
+<p>In the menu there should be enough protein foods, especially fish and low-fat dairy products, salads with fresh vegetables with the addition of unrefined sunflower or corn oil, fruits and herbs. Ordinary table salt substitute on the marine containing many useful trace elements. Nutritionists advise instead of salt to add to ready-made meals seaweed powder, which contains all necessary for the normal functioning of the bones and cartilage of trace elements.</p>
+
+<p>In addition, the diet should be excluded sharp, smoked, fried and salty foods, alcohol and refined foods, preferring healthy homemade food &ndash; whole grain porridge, stewed and pureed vegetables and soups. Doctors say if you stick to eating right, just get treatment and begin to actively engage in physical therapy, the inflammation in the joints can significantly slow down and you will be able to lead a full life.</p>

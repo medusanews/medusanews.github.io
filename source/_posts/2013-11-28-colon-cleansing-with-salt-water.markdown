@@ -1,0 +1,77 @@
+---
+layout: post
+title: "Colon cleansing with salt water"
+date: 2013-11-28 23:09
+comments: true
+categories: healthy-lifestyle
+description: Colon Cleansing salt water by Shunk-Prokshalany can more fully relax your sphincter muscle and remove the extra savings
+keywords: colon cleansing salt water, salt water purification intestine
+offer: healthbuy
+---
+<p><img class="left" src="http://medusanews.com/images/colon-cleansing-salt-water/image.jpg" width="200" height="150" title="Colon cleansing salt water, salt water purification intestine" alt="Colon Cleansing with salt water"> Clear the bowel salt water heals the whole body. Use a regular intestinal cleansing of toxins, toxins and poisons produced because of malnutrition, bad environment and stress, has long been no one in doubt because &ldquo;dirty gut&rdquo; is a favorable environment for the growth of pathogenic spoilage bacteria, which are gradually.</p>
+
+<!-- more -->
+
+
+<p>As a result, in the body there is a lot of issues:</p>
+
+<ul>
+<li>There is a deficiency of vitamins and minerals that are synthesized by the beneficial bacteria;</li>
+<li>Poisons are absorbed through unprotected rectal wall and the liver, which leads to disruption of the structure and the formation of gall stones in the gallbladder;</li>
+<li>Suffers excretory system, causing the skin appears abrasions, acne, inflammation and signs of early aging;</li>
+<li>Toxins negative effect on the blood vessels, causing them to spasm, increased blood pressure (hypertension symptoms) and the development of heart attacks and strokes;</li>
+<li>Toxins and poisons can be absorbed from the intercellular space in the cell itself, destroying it at the genetic level, and contributing to malignant degeneration.</li>
+</ul>
+
+
+<p>The main features of slagging intestine when it is time to take action &ndash; drowsiness, headache, lethargy, furred tongue plaque, bad breath, heaviness in the abdomen, rumbling and bloating, skin rash, constipation, inflammation of the mucous membranes in the mouth, plaque on teeth  As a rule, people are not too young or not quite leading a healthy lifestyle, there is always more of the signs.</p>
+
+<p>For regular colon cleansing should be a priority for every person who wants to maintain their health and protect against disease.</p>
+
+<h2>Clear the bowel salt water</h2>
+
+<p>The most effective and complete way of cleansing the body is to clean the intestines with salt water, used in the exercises of yoga for centuries. This unique technique is called Shank-Prakshalanoy and allows you to completely clear the gastro-intestinal tract, which can not in any way other than complete starvation.</p>
+
+<p>All other methods, unfortunately, give the illusion of a complete cleaning, because the traditional enemas, and Colon are valid only in the large department. There are cases where people who thought that they clean the intestines after a colon hydrotherapy sessions, when the Shank-Prakshalany surprised to discover in their stool cherry stones, eaten many months ago.</p>
+
+<p>The fact that the digestive tract towards the stomach to the anus extends a large number of food and sphincter valve which is opened and closed, helping to promote it. Methods Shank-Prakshalany except bowel cleansing with salt water, including performing specific exercises that relax the muscles of the valves. Because of this salty water flows freely into the rectum and acts like a lubricant there, softening the stool and freeing it from the traffic jams.</p>
+
+<h2>Contraindications and frequency of execution</h2>
+
+<p>Colon Cleansing salt water by the method of Shank-Prakshalany contraindicated for people with diseases of the stomach ulcer and acute lesions of the digestive tract &ndash; colitis, gastritis, pancreatitis, diarrhea, dysentery, tuberculosis, hemorrhoids and heightened bowel cancer. Also, do not carry it out during menstruation, at elevated temperature or blood pressure, heart attacks, any exacerbation of chronic illnesses and colds, when the body is too weak. Prohibits this method of treatment in pregnancy and immediately after the release of fasting (not earlier than one month).</p>
+
+<p>Carry out the procedure Shank-Prakshalany can be as necessary as a preventive four times a year when the seasons change. For those suffering from chronic constipation, it may be the best means of &ldquo;re-education&rdquo; of the intestine and used in place of enemas &ndash; first two times a week, and then, to the extent of purification, once every two weeks. For best results, it is desirable to clean prepare in advance, that is, relax, moisturize and warm your body. To do this week try to refrain from fatty, fried, spicy and meat dishes every day, take a warm bath every morning and drink fresh juices vegetables &ndash; carrot, apple, beet, cucumber.</p>
+
+<h2>Method bowel cleansing salt water</h2>
+
+<p>Method bowel cleansing salt water is the following &ndash; you need to dissolve 1 tablespoon sea ​​salt in a liter of warm water and drink 1 glass, alternating between drinking a glass of water with the performance of special moves at a fast pace to help relax the sphincter. So it is necessary to repeat 6 times (a glass of water &ndash; exercises) until consumed 6 cups.</p>
+
+<p>Stand with your feet shoulder width apart, arms at the castle over the head with his hands up, breathing free. Slow slopes alternately right and left by 8 times in each direction. These movements open the pylorus, what would the water could get out of it into the duodenum.</p>
+
+<p><strong>Exercise number 2 &ldquo;Circular motion&rdquo;</strong></p>
+
+<p>Pull the right arm forward, press the left chest. Thrusting his right hand, turn right only the upper part of the body. Then the other side. Perform 8 times.</p>
+
+<p>Take the prone position, with emphasis on the elbows, feet shoulder width 40 cm Hold your breath, raise your hands and turn to the right, trying to see his own heel. Return to the starting position and relax. Repeat on the other side. Perform 8 times.</p>
+
+<p><strong>Exercise number 4 &ldquo;Squatting&rdquo;</strong></p>
+
+<p>Squat down so that the distance between the feet was about 30 cm and the heel located on the outside of the thighs, and not under the buttocks. Lower the left knee to the floor, hands on knees. By hand tilt the right foot to the left, tilting the body slightly forward. In this case, try to press down on the right foot stomach. The same is repeated at the left side, 8 times in each direction. This exercise helps to move water into the rectum.</p>
+
+<p>Once the cup 6 is consumed and 6 complexes made should appear urge to defecate. If they are not within 5 mauled again, repeat the full range of motion at first and go to the toilet. If you still do not get emptied, which is unlikely, take a small enema with plain water without salt.</p>
+
+<p>After the first empty again to drink a glass of water, do exercises and go to the bathroom. This cycle must be repeated up until the water comes out clean. The number of repeated treatments depends on individual pollution intestines, but usually requires no more than 10-14 glasses. After the end of the cleansing drink 3 glasses of plain water and pushing the root of the tongue, try to induce vomiting in order to fully clean the stomach and turn off the mechanism of evacuation. If you do not, then within a few hours of time you want to go to the toilet.</p>
+
+<p>Sometimes, after a few glasses of salt water drunk nausea and abdominal fullness, feeling that the water does not pass into the intestine. This indicates that it is not opened the first sphincter. In this case, perform a series of exercises 2-3. Once the nausea will pass, then pass into the stomach and can be opened further to continue the procedure under the scheme.</p>
+
+<p>If you feel that the gas formed in the gut tube and hinders the process of draining, push down on the belly with his hands, make a stand on the blades (birch) and do the set of all four exercises.</p>
+
+<h2>Food and drink after bowel cleansing with salt water</h2>
+
+<p>After the full completion of cleaning rest for half an hour, then be sure to eat, no later than an hour after the last discharge (this is important because you can not keep the stomach empty after salt treatment over an hour). Drink before a meal can not be, despite appeared thirsty, because you support this evacuation, and will continue to go to the toilet.</p>
+
+<p>The first recommended food &ndash; rice cooked in water with butter (about 40 grams), wheat, oats or pasta with grated hard cheese. In the next days you can not consume milk, yogurt, white cheese, fresh vegetables and fruits, acidic foods and alcohol. The bread can be eaten after the second meal, at the end of day return to a normal diet, but meat.</p>
+
+<p>The first bowel movements appear about 24-36 hours after treatment, they are golden-yellow in color and odor, as in infants. The positive effect of cleansing occur at some time in the form of fresh breath, improve the complexion and pure whites of the eyes. In addition, following this procedure, many people get rid of allergies and get excellent absorption of nutrients, resulting in one acquires ideal weight &ndash; thin rid of unhealthy thinness, and those who are overweight, lose weight.</p>
+
+<p>People who intend to seriously address their rehabilitation and purification, may carry Shank-Prakshalanu every month, as it helps to rejuvenate, strengthen immunity, well-being and increased energy?</p>

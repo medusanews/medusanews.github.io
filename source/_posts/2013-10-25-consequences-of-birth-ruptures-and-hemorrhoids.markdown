@@ -1,0 +1,57 @@
+---
+layout: post
+title: "Consequences of birth: ruptures and hemorrhoids"
+date: 2013-10-25 23:20
+comments: true
+categories: proctology
+description: This article is devoted to hemorrhoid rupture during labor and after birth, as well as during pregnancy
+keywords: hemorrhoid rupture
+offer: venapro
+---
+<p>Unfortunately, not all women after childbirth fine. There are some side effects to deal with that would not like anyone, but often still have to. Of course all of this vremennoya phenomenon, but it has to be properly experienced.</p>
+
+<!-- more -->
+
+
+<p>The three most common problems are:</p>
+
+<ul>
+<li>Perineum dissection,</li>
+<li>Ruptures soft tissue crotch,</li>
+<li>Hemorrhoids.</li>
+</ul>
+
+
+<h2>Perineum dissection and ruptures</h2>
+
+<p>It often happens that in the process of childbirth maternity make a neat incision or does it turn out breaks. At these places later stitches.</p>
+
+<p>If you stitches, then you should know how to look after them:</p>
+
+<ul>
+<li>Joints must be kept clean and dry. Bowl gasket change, and even better throw a &ldquo;ventilation&rdquo;;</li>
+<li>When taking a shower, watch the water would not fall into the vagina;</li>
+<li>Outer seams are very well cleaned chamomile, calendula;</li>
+<li>The first two months of getting out of bed very carefully and do not make any sudden movements;</li>
+<li>If the outer seams &ndash; the first two weeks is not recommended to sit;</li>
+<li>Does not in any way lift heavy;</li>
+<li>Breastfeed better lying down;</li>
+</ul>
+
+
+<p>During the healing you can feel the pain slack, but if you suddenly become joint pain fester and worsen, immediately consult a gynecologist. If the scars are large and hard to soften the suit light massage with the infusion of herbs. Just do Kegel exercises, they will help restore elasticity of the skin.</p>
+
+<h2>Hemorrhoids</h2>
+
+<p>Hemorrhoids &ndash; varicose veins in the form of a nodule in the anus. This problem can affect you during pregnancy and during labor, and after them. If you are faced with such a sensitive issue, do not despair. Of course, you need to see a doctor.</p>
+
+<p>In addition to expert advice will help you:</p>
+
+<ul>
+<li>Take a warm bath with herbal infusions in a sitting position. However, it can be done only after the post-partum end up in isolation.</li>
+<li>Apply directly to the trouble spot fitoled.</li>
+<li>As well help herbal compresses.</li>
+<li>Avoid constipation. Include in your diet: beets, baked apples, sea cabbage, cereals.</li>
+<li>Avoid strenuous exercise.</li>
+<li>Perform Kegel exercises.</li>
+</ul>

@@ -1,0 +1,38 @@
+---
+layout: post
+title: "Suppository for Hemorrhoids - what is best for treatment?"
+date: 2013-11-13 21:21
+comments: true
+categories: proctology
+description: To know the specific list of suppository for hemorrhoids with a description of their properties and recommendations
+keywords: suppository for hemorrhoids
+offer: venapro
+---
+<p><img class="left" src="http://medusanews.com/images/suppository-for-hemorrhoids/13.jpg" width="200" height="150" title="Suppository for hemorrhoids" alt="Suppository for Hemorrhoids - what is best for treatment?"> Suppository from hemorrhoids are a conservative method of getting rid of the disease. Therefore, they can not always be used in the treatment of this disease. Apply suppository should be started only after having been accurately diagnosed. In this paper we describe in general what the existing market more efficient suppository, how best to use them, by treating the condition. To know the specific list of suppository for hemorrhoids with a description of their properties and recommendations &ndash; click on a link (you can open a new tab if you first want to finish reading this article).</p>
+
+<!-- more -->
+
+
+<p>It is important to understand &ndash; to the question &ldquo;what is better spark&rdquo; in a particular case, the answer can only be a specialist conducting the diagnosis of your condition. In drugstores are very different &ndash; they differ among themselves on the nature of the action. Some are designed to reduce the pain that causes the disease. Other suppositories have a healing effect. This means that these suppository for hemorrhoids help wounds heal faster and existing cracks in the rectum and anus. Still others &ndash; these are the best suppository for hemorrhoids bleeding. They are able to stop the flow of blood for couples of improving its clotting.</p>
+
+<h2>What are the suppository from hemorrhoids to choose?</h2>
+
+<p>Sold suppository for hemorrhoids and fissures, from internal and external forms of the disease vary in price. But this is often an indication that cheap suppository worse than their more expensive counterparts. Usually cures for hemorrhoids local production cost less than importations, imported. Price consists of several parameters. In the case of foreign drugs, their price increases due to shipping costs, customs duties, and so on</p>
+
+<p>What suppository for hemorrhoids, you choose yourself. It all depends on your financial capabilities. Somebody&rsquo;s power to obtain the most effective suppository imported at a high enough price. And someone can buy only cheap, chinese.</p>
+
+<h2>What are the suppository and their composition?</h2>
+
+<p>Pain suppository with hemorrhoids. Their main purpose is to reduce the pain that causes the disease of the rectum. They consist of novocaine or anestezina. These chemical elements are very well remove all the existing discomfort, itching and pain. However, the use of anesthetics has a number of contraindications. First, they are very much increase blood pressure. Therefore, these suppository can not be used in the treatment of patients with hypertension disease. Also avoid the use of suppositories in the elderly, when increased pressure is normal because of age-related changes in the human body.
+Hemostatic suppository. The composition of these suppository are such components as Dicynone, menadione, calcium chloride. All of these chemical elements increase blood clotting. This is a very important fact in the treatment of bleeding hemorrhoids. Blood loss, if not stop, can cause anemia. This disease is not only dangerous to human health, but also for his life.
+Anti-hemorrhoids suppository. The composition of the suppository includes various components which have a bactericidal effect. The best preparations of this group contain sea buckthorn oil. It not only helps speed the healing of wounds and fractures in the rectum and anus, but also kills bacteria, germs and other microorganisms that caused the inflammation. Have a similar effect and such components of vegetable appointment as propolis, tea tree oil, an extract of St. John&rsquo;s wort, yarrow, and so on</p>
+
+<h2>Suppository for hemorrhoids treatment &ndash; how to use?</h2>
+
+<p>Of course, suppository today are effective in the treatment of the disease, along with pills. However, even the best of them will not have the desired effect if they are not properly used. It is important to know what you need suppository, how to insert them when it is best to carry out medical procedures and how many times.</p>
+
+<p>Suppository for hemorrhoids need to put in the evening before you are going to go to bed. Well, if the procedure before you empty the bowel. After the act of defecation is necessary to make water treatments. The anal opening must be clean prior to treatment. The suppository is necessary to open and remove the protective cover. This should be done as early as fully finished state, so you can directly enter into the anus of a candle. Otherwise, it will start to melt. After the candle was introduced into the rectum, you should immediately lie down on your back and lie down so at least thirty minutes. This is usually sufficient to ensure that the drug has melted and fell into the bloodstream. More specific nuances about the use of suppository for hemorrhoids can be read in the instructions that came with a particular drug.</p>
+
+<p>Recommend suppository may only your doctor who knows the specific features of the disease. Even if you have a whole list of these drugs, it does not guarantee that they will help you. Only your doctor is aware of your particular state of diseases of the rectum and can choose the right treatment.</p>
+
+<p>Hemorrhoid Treatment folk remedies possible. But any recipe before you start using it, must be approved by your doctor. Most methods of folk medicine used in combination with traditional therapies, help accelerate recovery person.</p>

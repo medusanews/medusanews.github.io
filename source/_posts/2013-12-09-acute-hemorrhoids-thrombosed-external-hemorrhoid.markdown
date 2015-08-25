@@ -1,0 +1,26 @@
+---
+layout: post
+title: "Acute hemorrhoids - Thrombosed external hemorrhoid"
+date: 2013-12-09 22:50
+comments: true
+categories: proctology
+description: Thrombosed external hemorrhoid - expansion of the cavernous veins of the lower portion of the rectum to form knots, bleeding, inflamed and derogates &hellip;
+keywords: thrombosed external hemorrhoid
+offer: venapro
+---
+<p><img class="left" src="http://medusanews.com/images/thrombosed-external-hemorrhoid/image.jpg" width="200" height="150" title="Thrombosed external hemorrhoid" alt="Acute hemorrhoids - Thrombosed external hemorrhoid">A patient with <strong>thrombosed external hemorrhoid</strong> can be found on the &ldquo;duck gait&rdquo; with which they come into the doctor&rsquo;s office. Asked to sit down on a chair, meet the &ldquo;thank you I&rsquo;ll stand by foot&rdquo;. Why is that? Because concerned about pain in the anal area, at whom are moderate, at whom expressed.</p>
+
+<!-- more -->
+
+
+<p>The cause of acute hemorrhoids is different: constipation, diarrhea, hypothermia, weight lifting, alcohol, pregnancy, childbirth, anal sex, etc. With an increase in intra-abdominal pressure occurs powerful rush of blood to pelvis, because of what could &ldquo;explode&rdquo; vein in the perianal area and formed <strong>thrombosed external hemorrhoid</strong>. In fact, this hematoma, which is located under the skin gives a lot of pain and discomfort. This occurs because blood clot presses on the inner tissues thereby stretching the nerve endings, followed by pain. Many people ask this hematoma can get to the heart? No description of a single case of getting thrombosed blood clot (hematoma) of the haemorrhoid in the heart.</p>
+
+<p>Thrombosed external hemorrhoid is more often a unit, can occur immediately 2-3 thrombosed node and can be circular when the swells all perianal area. As well found thrombosis of internal hemorrhoids. This occurs against the background of already existing hemorrhoids during stool internal nodes drop out further as a consequence of the sphincter spasm nodes are infringed, there is an infringement of outflow of blood, swelling knotswith subsequent thrombosis. With such an aggravation of internal hemorrhoids pain for so many severe that patients can not &ldquo;neither sit nor stand up&rdquo; and some call the &ldquo;911&rdquo;. What to do if diagnosed acute hemorrhoids?</p>
+
+<h2>How to treat thrombosed external hemorrhoid</h2>
+
+<p>Treatment hemorrhoid thrombosis. Usually in such cases, you need to limit yourself to walking, exercise, spicy foods, alcohol. Appointed by warm baths and heating pads 2-3 times a day for 20-30 minutes (due to the heat accelerates the resorption of blood clots). When the external manifestations of thrombosis knots rectal suppositories are ineffective. The good effect of acute hemorrhoids gives a natural product such as «<span class="demo-button-click" id="demoT7">Venapro-Hemorrhoid Formula</span>». Locally thrombosed knots must be lubricated with ointments Anusol HC, Carmol HC, Hydrocortisone, Hytone, Locoid Lipocream, Locoid, Westcort, that also helps to speed up the resorption process thrombosed clots. All the foregoing conservative therapy will surely give effect, it should be noted that in the conservative treatment process of resorption may take 1-1.5 months. After the complete disappearance of the phenomenon of acute hemorrhoids, on the site of the thrombosed knot almost always remains so-called fringe anal hemorrhoidal.It should be noted that in the future, at the same location, under the influence of any factor may again appear thrombosis node.</p>
+
+<p>Now the information for those who do not like long to be treated. The most rapid and effective treatment of thrombosis, it is certainly a thrombectomy (forced removal of thrombus from the knot). Under anesthesia thrombosed clots are removed from the cut of up to 0.5 cm. Node decreases and the pain immediately stoped. The procedure takes about 1-2 minutes. At the site of thrombectomy wound remains (0.5 cm) that heals for an average of 4 days. In this case, the need for rectal suppositories, ointments, warm baths already not. However, it is recommended prophylactic course of Venapro-Hemorrhoid Formula (1 month). After 15 minutes of thrombectomy and recommendations of the patient to go home. Ability to work after the procedure is not lost. Frequently offer remove thrombosed clots together with the node in this case addition to the rapid relief of pain is achieved cosmetic effect. Already at this point there is no thrombotic conditions, but in other places around the circumference of the anus can appear. Why? Because thrombectomy and removal of a thrombosed external hemorrhoid is not a radical operation.</p>
+
+<p>In some cases, when exacerbation passes at available hemorrhoids II-IV stage, radical surgery is acceptable for time reasons. After this operation is a complete cure patients from hemorrhoidal disease and the appearance thrombosed external hemorrhoid of this place for many decades (may appear elsewhere). Risks and complications at radical surgery for time reasons do not exceed those for planned interventions.</p>

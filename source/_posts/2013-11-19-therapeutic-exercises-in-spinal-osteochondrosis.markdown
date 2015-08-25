@@ -1,0 +1,126 @@
+---
+layout: post
+title: "Therapeutic exercises in spinal osteochondrosis"
+date: 2013-11-19 19:48
+comments: true
+categories: healthy-lifestyle
+description: Physical therapy in spinal osteochondrosis helps reduce stress on the joints and relieves salt deposits
+keywords: physical therapy in spinal osteochondrosis
+offer: healthbuy
+---
+<p><img class="left" src="http://medusanews.com/images/physical-therapy-in-spinal-osteochondrosis/image.jpg" width="200" height="150" title="Physical therapy in spinal osteochondrosis" alt="Therapeutic exercises in spinal osteochondrosis"> Physical therapy reduces stress on the joints and helps the deposition of salts. Many people who have the first symptoms of joint disease &ndash; the crunch and clicks, believe that they have a &ldquo;simple&rdquo; salt deposits &ndash; a trifle, which is observed in almost all and therefore do not require treatment. However, the deposition of salt, as it is popularly called low back pain, the disease is not as harmless as it may seem at first glance.</p>
+
+<p>The fact that the starting salt deposited only at inappropriate salt metabolism in the body. A healthy body can absorb salts only as much as is necessary for normal functioning, and the excess output.</p>
+
+<!-- more -->
+
+
+<p>If you violate a salt exchange surpluses are deposited in various parts of the body, causing certain diseases, often low back pain, gout, kidney stones and gall stones.</p>
+
+<p>For osteochondrosis deferrable salt are often formed in sharp spikes that compress the nerves and cause severe pain with movement, causing a person is suffering, can not turn his head, torso, and the robot has to move, protecting yourself from the pain. In addition, osteochondrosis of the cervical spine may be accompanied by severe headaches, and in the period of acute lumbar degenerative disc disease and sciatica people and is completely bedridden.</p>
+
+<p>Due to the fact that the joints begin to undergo similar changes already 20 years old, everyone should regularly engage in the prevention of salt deposits, which includes the cleaning of joints, proper diet (read the article diet for gout, osteochondrosis and salt deposits in the joints), and clear the joints folk remedies, such as using rice or bay leaf, carried out in order to prevent a year and gives a good effect. Therapeutic diet should be organized to remove excess weight, which is an additional burden on joints and provide the body with all the necessary vitamins and trace elements, especially calcium for strong bones and cartilage.</p>
+
+<h2>Physical therapy in spinal osteochondrosis</h2>
+
+<p>Gymnastics spinal osteochondrosis plays a major role, as well strengthens and tones the muscles of the back. With weak muscles of the body burden is &ldquo;hanging&rdquo; on one spine, flattening and deforming discs. If the muscles of the back and loins are well fortified, as they would create an additional corset and take on the weight of the body.</p>
+
+<p>In addition, therapeutic exercises in spinal osteochondrosis helps get rid of extra salt, because if you exercise the bone and muscle tissue using them to compensate for the physiological loss. Finally, regular active movements, with which physiotherapy is the deposition of salts, gradually, as it were &ldquo;polished&rdquo; salt spikes, making them less sharp and painful.</p>
+
+<p>Physical therapy will be effective only if it is done regularly, every day for 10-15 minutes. The following is a universal set of exercises that will suit everyone. We need to start small, gradually complicating every move &ndash; increasing the number of repetitions, strength and amplitude of slopes and turns. To enhance the effect of the exercises you can use a stick, holding her elbows behind his back. The first four are preparatory exercises complex and prepare the cardiovascular system to the load, and four of the latter, on the contrary, contribute to bringing the body to a calm state after a workout.</p>
+
+<h2>Versatile set of exercises with osteochondrosis</h2>
+
+<h3>Preparatory exercises</h3>
+
+<p>Raise your hands, stretch up (breath), and then lower down, returning to the starting position (exhale).</p>
+
+<p>Grasp the support and rise from heel to toe.</p>
+
+<p>Stand with your feet shoulder width apart, hands on his belt. Move the arms back, reducing the maximum blade (inhalation). Bring elbows to the first starting position and then forward as far as you can (exhale).</p>
+
+<p>Tread on the spot, raising his knees.</p>
+
+<p>Stand erect with your feet shoulder width apart. The maximum stretch up, raising his hands (breath), then lean forward (exhale).</p>
+
+<h3>Arms down at your sides</h3>
+
+<p>Stand erect. Turn around in different directions, arms relaxed at the same time and how would overwhelm the body.</p>
+
+<p>Circular rotation to the right and left lower part of the body.</p>
+
+<p>The circular rotation of hands alternately in different directions.</p>
+
+<p>Stand erect, hands on waist, feet shoulder width apart. Take your right hand back, looking at her (inspiration), go back (exhalation). Similarly, perform the other hand.</p>
+
+<p>Standing upright or sitting in a chair doing Reclining head turns to the right, left, back and forth, then a circular motion.</p>
+
+<p>Sit on a chair and slowly slide your feet on the floor back and forth alternately.</p>
+
+<p>Stand up straight, stretch up with your hands (inhalation), scroll down (exhale).</p>
+
+<p>By the universal set of exercises with osteochondrosis can be added to the selection of specific additional exercises for the cervical, thoracic or lumbar spine, as well as for large joints most affected by the deposition of salts &ndash; shoulder, hip, and knee.</p>
+
+<h3>Exercises for the cervical spine</h3>
+
+<p>Starting position &ndash; lying on his stomach, head turned to the side. Lift up on the hands, throwing his head back (inspiration), go back (exhale).</p>
+
+<p>Tilt your head back, touching the back. Draw your shoulders vertically.</p>
+
+<p>Tilt your head forward and touching his chest, chin slide up and down, simulating the movement of birds to clean the feathers.</p>
+
+<h3>Exercises to help relieve the chest department</h3>
+
+<p>Sit in a chair, hands behind his head rewound (inhalation), cave as possible back, shoulders touching the chair back (exhale).</p>
+
+<p>Get on all fours, cave in the back, keep your head straight, stay in this position for a few seconds, then return to starting position.</p>
+
+<p>Exercise &ldquo;Boat&rdquo;. Lie on your stomach, arms along the body. Cave in &ldquo;boat&rdquo;, taking his head and legs as high as possible off the floor.</p>
+
+<h3>Exercise for the lumbar spine</h3>
+
+<p>Lie on your back, press down bent knees as close to your chest.</p>
+
+<p>Lying on his stomach, rest on the floor bent arms. Straightening your arms, push-ups on the floor, keeping the legs.</p>
+
+<p>Get on your knees, resting his hands on the floor straight. Maximum Flex the back up, then return to starting position.</p>
+
+<p>Stand with your feet shoulder width apart. Lean down, trying to get the floor with his hands. Then stand up straight, raise your arms above your head cave in and make the most.</p>
+
+<p>Exercise &ldquo;cat&rdquo; perfectly relieves tension from the back. Get on all fours, leaning on his knees and hands. Arms and back should be straight, do not tilt your head, look forward. Tilt your head back down and forecasting arc up like a cat, stay in this position for 10 seconds, then go back and relax.</p>
+
+<p>It is also useful to hang out at every opportunity on the bar for 1-2 minutes.</p>
+
+<h3>Exercises for the shoulder joints</h3>
+
+<p>Sit on a chair, put his hands on his belt and spread to the sides. Slowly lift your shoulders up to the stop and gently lowered down slightly pulling down.</p>
+
+<p>Sit on a chair, a push to the back, hands on his waist, elbows divorced. Follow the movement of the shoulders gently back and forth.</p>
+
+<p>In the same starting position alternately follow the circular movement of the shoulders.</p>
+
+<p>Sit on a chair and slide as far back as the patient&rsquo;s hand, healthy, grabbed her wrist and pull toward your buttocks until the pain. Stay in this position for 10 seconds and strain the patient&rsquo;s hand. Then relax and try to move it a few more inches to the onset of pain. Repeat 3-5 times.</p>
+
+<p>Get a hands behind his back and locked in a castle. Then pull in different directions, as if trying to break the lock. Alternately, drag them to the right and to the left, not disengaging.</p>
+
+<p>Stand erect, flattened behind the castle as his hands slowly allot up and back, trying to take as much as possible, but without sharp pain. In this case, the patient remains passive hand.</p>
+
+<h3>Exercises for the hip joints</h3>
+
+<p>Lie on your side with your right leg at the knee and remove the floor in front of him. Then do the same with the other hand.</p>
+
+<p>Lie on your stomach. Bend your right leg, pull it to the side and push the knee to the floor, as if crawling &ldquo;on their bellies.&rdquo; Then do the same with the left hand.</p>
+
+<p>Lying on his stomach, focusing on the bent arm. Then straighten your arms and sit on your heels.</p>
+
+<p>Sit on the floor cross-legged with his legs crossed. Swing your body back and forth.</p>
+
+<h3>Exercises for the knee</h3>
+
+<p>Movement &ldquo;Bicycle&rdquo;. Lying on his back, legs mimic the movement while riding a bike, do not touch the floor.</p>
+
+<p>Lie on your stomach. Without lifting your hips off the floor, bend your legs alternately, trying to touch their buttocks. If there are no sharp pains, you can perform up to 50 times.</p>
+
+<p>Lying on your stomach, bend your leg at the knee at 90 degrees with respect to the body and hold a few seconds. Follow by turns both feet until you get tired (you can up to 50 times).</p>
+
+<p>Sitting on the floor and holding exactly back, dangling his feet at a moderate speed. This exercise is useful to carry out during the day for a lot of times.</p>

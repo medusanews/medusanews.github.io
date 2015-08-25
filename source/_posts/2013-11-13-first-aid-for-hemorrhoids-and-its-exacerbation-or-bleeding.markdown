@@ -1,0 +1,61 @@
+---
+layout: post
+title: "First aid for hemorrhoids and its exacerbation or bleeding"
+date: 2013-11-13 21:19
+comments: true
+categories: proctology
+description: Also not to be confused with hemorrhoids prolapse of the rectum
+keywords: how to help hemorrhoids
+offer: venapro
+---
+<p><img class="left" src="http://medusanews.com/images/how-to-help-hemorrhoids/11.jpg" width="200" height="150" title="How to help hemorrhoids" alt="First aid for hemorrhoids and its exacerbation or bleeding"> Normally the development of hemorrhoids is gradual, but there are cases when the disease suddenly catches. The aggravation of hemorrhoids, accompanied by bleeding, may be triggered by excessive physical work and heavy lifting, often &ndash; poor diet and processes such as childbirth in women. In such cases, first aid for hemorrhoids need no less than any other disease.</p>
+
+<!-- more -->
+
+
+<p>Bleeding, sharp pain in the anus, stool problems, constipation &ndash; all manifestations of an exacerbation of the disease. Typically, the cause of bleeding is hard stool that their sharp edges damage pile. After the damage of blood hemorrhoids and is accompanied by a sharp pain, itching.</p>
+
+<h2>First Aid with acute hemorrhoids &ndash; what to do</h2>
+
+<p>Despite the fact that in most cases with acute hemorrhoids is no serious threat to the organism does not occur at the sight of blood patients begin to panic and often exacerbate the situation by their own actions. Also not to be confused with hemorrhoids prolapse of the rectum.</p>
+
+<p>Here are the basic steps for first aid in case of aggravation of hemorrhoids:</p>
+
+<ul>
+<li>Remain calm and do not in any way straining with constipation, try to get rid of the remnants of feces. This way, you can avoid additional damage and reduce the bleeding sites.</li>
+<li>Change the position of the body of standing or sitting on the escalation try to lie more &ldquo;face up&rdquo; by removing the stress on the muscles of the anus.</li>
+<li>To avoid getting an infection in the body &ndash; most often use the bath with cool (room temperature) water. On the road or on a business trip or cleaning the help cool off. It will also reduce the pain manifestations.</li>
+<li>Make an enema &ndash; it will download the intestines and promotes the healing of wounds aggravated.</li>
+<li>Immediate start a diet, eating prunes and fiber, the exclusion from the diet of &ldquo;heavy&rdquo; foods, alcohol and starchy foods will lead to the fact that the next time the process of defecation is not constipation, hemorrhoids will not be damaged and begin to heal.</li>
+</ul>
+
+
+<h2>Folk remedies to help</h2>
+
+<p>Since the constant aggravation help coming stool, damaged areas simply do not have time to heal, then in such cases it is recommended to use special herbal teas. For example, the infusion of herbs pochechuynoy has a strong laxative and hemostatic effect.</p>
+
+<p>Will be able to help with bleeding following extracts: yarrow, cranberry bark, bloodroot goose. It is also recommended to take sea buckthorn oil. Use oil can be both inside and outside. Lubrication of the anus, and the use of enemas with oils will help reduce pain, heal hemorrhoids.</p>
+
+<h2>Surgical treatment of acute hemorrhoids</h2>
+
+<p>The first and most necessary condition for successful treatment &ndash; a distinction hemorrhoids from rectal prolapse. At home, perform this procedure, you can not do, so you should consult a doctor in the shortest possible time. During the examination, the doctor will determine the state of the anal area, and the presence of hemorrhoids dropped.</p>
+
+<p>Following the procedure of collecting the necessary data, the doctor will prescribe a treatment. In cases where conservative treatment is ineffective, surgical intervention. The goal of this therapy will be to excision of hemorrhoids.</p>
+
+<p>Even this operation can not always guarantee 100% results. It all depends on the many features of the disease. In this case, complications may give the late stages of developing hemorrhoids, pathological features of the structure of the rectum and anus.</p>
+
+<h2>Treatment of bleeding hemorrhoids</h2>
+
+<p>The main symptom of hemorrhoids &ndash; a bright red color of blood. Color blood indicates that the blood flows from the injured arteries. To stop the bleeding often use enemas.</p>
+
+<p>Enemas sodium tannin promote partial coagulation of proteins and form a protective film. Due to this, there is a reduction of pain and narrowed blood vessels of the rectum. Also possible enema 3% hydrogen peroxide. The time an enema is 2 &ndash; 3 days.</p>
+
+<p>In the event of prolonged bleeding continued urgent need to see a doctor who will prescribe the necessary examination.</p>
+
+<h2>Lifestyle hemorrhoids</h2>
+
+<p>Hemorrhoids &ndash; this is not a death sentence. When the first symptoms of the disease is urgently think about changing lifestyles. Very often acute hemorrhoids catches people pursuing &ldquo;sedentary&rdquo; lifestyle. Under these conditions increases the risk of congestion in the rectal area. Avoid similar situations and bleeding will help: swimming, running, frequent walking, dancing.</p>
+
+<p>Do not neglect the rules of personal hygiene. When hemorrhoids after each toilet visit, it is recommended to wash the perineum with cool water. The use of toilet paper may enhance the already strong pain.</p>
+
+<p>It is also worth diet. In the treatment of hemorrhoids is necessary to settle a chair, because it should not be hard. It is recommended to eat fruits and vegetables that contain a sufficient amount of fiber. Dietary fiber in this case will help to improve the formation of stools. It is necessary to limit the use of sharp and salty foods.</p>
