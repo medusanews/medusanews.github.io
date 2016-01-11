@@ -1,6 +1,18 @@
 <?xml version="1.0" encoding="UTF-8"?>
 <urlset xmlns:xsi="http://www.w3.org/2001/XMLSchema-instance" xsi:schemaLocation="http://www.sitemaps.org/schemas/sitemap/0.9 http://www.sitemaps.org/schemas/sitemap/0.9/sitemap.xsd" xmlns="http://www.sitemaps.org/schemas/sitemap/0.9">
   <url>
+    <loc>http://medusanews.com/articles/what-products-raise-and-which-lower-blood-pressure/</loc>
+    <lastmod>2016-01-11T17:06:00+05:00</lastmod>
+  </url>
+  <url>
+    <loc>http://medusanews.com/articles/how-to-remove-the-thighs/</loc>
+    <lastmod>2016-01-11T15:57:00+05:00</lastmod>
+  </url>
+  <url>
+    <loc>http://medusanews.com/articles/what-not-to-eat-before-blood-donation/</loc>
+    <lastmod>2016-01-11T15:03:00+05:00</lastmod>
+  </url>
+  <url>
     <loc>http://medusanews.com/articles/belly-massage-for-weight-loss/</loc>
     <lastmod>2016-01-08T11:18:00+05:00</lastmod>
   </url>
@@ -1738,5 +1750,8 @@
   </url>
   <url>
     <loc>http://medusanews.com/articles/posts/10/</loc>
+  </url>
+  <url>
+    <loc>http://medusanews.com/articles/posts/11/</loc>
   </url>
 </urlset>
