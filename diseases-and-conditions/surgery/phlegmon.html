@@ -32,7 +32,9 @@
   <script src="/javascripts/jbox.js"></script>
   <script src="/javascripts/jbox_.js"></script>
   <script src="/javascripts/ouibounce.js"></script>
-  
+  <script type="text/javascript">
+    banner = ban.mdplan;
+  </script>
   <!--Fonts from Google"s Web font directory at http://google.com/webfonts -->
 <link href="//fonts.googleapis.com/css?family=PT+Serif:regular,italic,bold,bolditalic" rel="stylesheet" type="text/css">
 <link href="//fonts.googleapis.com/css?family=PT+Sans:regular,italic,bold,bolditalic" rel="stylesheet" type="text/css">
@@ -110,6 +112,7 @@ Prevention is to prevent microtrauma at work and at home, immediate first aid fo
 Patients hospitalized for phlegmon necessarily.<br><br> The main treatment is surgery phlegmon. Early surgical intervention to prevent significant spread of purulent process and the development of general purulent intoxication.<br><br> In the postoperative period than active local treatment is necessary to conduct intensive intravenous fluid therapy, targeted antibiotic treatment therapies.
 <h2>What can you do?</h2>
 With the emergence of the symptoms described above, you should immediately consult a doctor. Phlegmon - an acute disease spread rapidly, and if there is a decrease in immunity, the disease can lead to irreversible consequences, including death. 
+
   
     <footer>
       <p class="meta">
@@ -188,7 +191,60 @@ With the emergence of the symptoms described above, you should immediately consu
 </aside>
 
 
-      
+      <!-- OuiBounce Modal -->
+    <div id="ouibounce-modal">
+      <div class="underlay"></div>
+      <div class="modal">
+        <div class="modal-title">
+          <h3>THE FUTURE OF HEALTHCARE IS HERE</h3>
+        </div>
+
+        <div class="modal-body">
+          <div style="text-align:center"><img src="/ads/mdplan-ouib.png" class="ouibounce-leftimg"/></div>
+	<p>Instant access to the country's best doctors and pediatricians from the comfort of your living room<br>All Monthly VIP MDPlans include:
+		<ul>
+			<li>VIP Virtual Doctor Visits</li>
+			<li>US Board Certified Pediatricians for Children 0-17</li>
+			<li>24 X 7 Access to Licensed Counselors</li>
+			<li>Confidential Lab Testing and Much More!</li>
+		</ul>
+	</p>
+
+          <form action="http://www.lnk123.com/SHUkp">
+            <input type="submit" value="learn more &raquo;">
+          </form>
+        </div>
+        <div class="modal-footer">
+          <p>no thanks</p>
+        </div>
+      </div>
+    </div>
+
+    <!-- Example page JS        -->
+    <!-- Used to fire the modal -->
+    <script>
+
+      // if you want to use the 'fire' or 'disable' fn,
+      // you need to save OuiBounce to an object
+      var _ouibounce = ouibounce(document.getElementById('ouibounce-modal'), {
+        aggressive: true,
+        timer: 0,
+        callback: function() { console.log('ouibounce fired!'); }
+      });
+
+      $('body').on('click', function() {
+        $('#ouibounce-modal').hide();
+      });
+
+      $('#ouibounce-modal .modal-footer').on('click', function() {
+        $('#ouibounce-modal').hide();
+      });
+
+      $('#ouibounce-modal .modal').on('click', function(e) {
+        e.stopPropagation();
+      });
+    </script>
+
     </div>
   </div>
   <footer role="contentinfo"><p>

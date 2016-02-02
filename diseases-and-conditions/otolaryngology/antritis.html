@@ -32,7 +32,9 @@
   <script src="/javascripts/jbox.js"></script>
   <script src="/javascripts/jbox_.js"></script>
   <script src="/javascripts/ouibounce.js"></script>
-  
+  <script type="text/javascript">
+    banner = ban.mdplan;
+  </script>
   <!--Fonts from Google"s Web font directory at http://google.com/webfonts -->
 <link href="//fonts.googleapis.com/css?family=PT+Serif:regular,italic,bold,bolditalic" rel="stylesheet" type="text/css">
 <link href="//fonts.googleapis.com/css?family=PT+Sans:regular,italic,bold,bolditalic" rel="stylesheet" type="text/css">
@@ -110,6 +112,7 @@ See your doctor if the condition worsens or symptoms persist for a long time.<br
 The physician should make a diagnosis, which may require examination (X-ray examination of the sinuses and some tests).<br><br> Write out the necessary medicines, sprays and drops of nasal congestion, decongestants, antibiotics, painkillers or antihistamines.<br><br> Doctor may suggest surgery when all other means are not helping or observe the formation of nasal polyps.
 <h2>Preventing antritis (antritis)</h2>
 Wash your hands frequently to avoid getting an infection. Do not smoke, because smoking can cause irritation of the sinuses. Do not drink alcohol, because it may cause swelling of the sinuses. Avoid cigarette smoke and polluted air, as it causes irritation of the respiratory tract.
+
   
     <footer>
       <p class="meta">
@@ -188,7 +191,60 @@ Wash your hands frequently to avoid getting an infection. Do not smoke, because 
 </aside>
 
 
-      
+      <!-- OuiBounce Modal -->
+    <div id="ouibounce-modal">
+      <div class="underlay"></div>
+      <div class="modal">
+        <div class="modal-title">
+          <h3>THE FUTURE OF HEALTHCARE IS HERE</h3>
+        </div>
+
+        <div class="modal-body">
+          <div style="text-align:center"><img src="/ads/mdplan-ouib.png" class="ouibounce-leftimg"/></div>
+	<p>Instant access to the country's best doctors and pediatricians from the comfort of your living room<br>All Monthly VIP MDPlans include:
+		<ul>
+			<li>VIP Virtual Doctor Visits</li>
+			<li>US Board Certified Pediatricians for Children 0-17</li>
+			<li>24 X 7 Access to Licensed Counselors</li>
+			<li>Confidential Lab Testing and Much More!</li>
+		</ul>
+	</p>
+
+          <form action="http://www.lnk123.com/SHUkp">
+            <input type="submit" value="learn more &raquo;">
+          </form>
+        </div>
+        <div class="modal-footer">
+          <p>no thanks</p>
+        </div>
+      </div>
+    </div>
+
+    <!-- Example page JS        -->
+    <!-- Used to fire the modal -->
+    <script>
+
+      // if you want to use the 'fire' or 'disable' fn,
+      // you need to save OuiBounce to an object
+      var _ouibounce = ouibounce(document.getElementById('ouibounce-modal'), {
+        aggressive: true,
+        timer: 0,
+        callback: function() { console.log('ouibounce fired!'); }
+      });
+
+      $('body').on('click', function() {
+        $('#ouibounce-modal').hide();
+      });
+
+      $('#ouibounce-modal .modal-footer').on('click', function() {
+        $('#ouibounce-modal').hide();
+      });
+
+      $('#ouibounce-modal .modal').on('click', function(e) {
+        e.stopPropagation();
+      });
+    </script>
+
     </div>
   </div>
   <footer role="contentinfo"><p>
