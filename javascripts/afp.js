@@ -1,4 +1,4 @@
-function geoPlugin(data)
+/*function geoPlugin(data)
 {
 	a = 'http://statm.site11.com/visitor.php?glCountryName='	+	data["geoplugin_countryName"]+
 		'&referer='			+	encodeURIComponent(document.referrer);
@@ -9,7 +9,7 @@ function geoPlugin(data)
 }
 var script = document.createElement('script');
 script.src = 'http://www.geoplugin.net/json.gp?jsoncallback=geoPlugin'
-document.getElementsByTagName('head')[0].appendChild(script);
+document.getElementsByTagName('head')[0].appendChild(script);*/
 
 var ban = {
 venapro: '<div style="float:left; width:20%"><a href = "http://www.lnk123.com/SHDcC"><img src = "/ads/venapro.png" style = "width:100%"></a></div><div style = "float:left; margin-left:0.4em; width:77%"><a href = "http://www.lnk123.com/SHDcC">Venapro</a><p style = "font-size: 80%; line-height:1; margin-bottom:0em margin-bottom:0em">Best treatment for hemorrhoids.<br> Bring fast and effective relief in<br> acute hemorrhoid pain.</p></div>',
